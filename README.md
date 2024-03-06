@@ -16,7 +16,7 @@ Let's code and innovate together! 💻✨
 - 👨🏻‍💻 &nbsp; Unfortunately😢, most projects are private (but you can find out more information by writing to me 😊)
 - 💬 &nbsp; Ask me about anything, I am happy to help;
 - 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/danuoprea/)
-- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1ReQKX2jc-jq_lSusMdfLhi_T632zLcFh/view)
+- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1FYfrNMPkNgU1xyu1EQFtyGOiZeCKolv_/view?usp=sharing)
 
 #### 📫 How to reach me:
 [![Reach me](https://skillicons.dev/icons?i=gmail)](mailto:opreadanu553@gmail.com)
